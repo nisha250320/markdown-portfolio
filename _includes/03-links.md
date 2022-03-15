@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+ You can check out my favorite persons  talks and streams at [guthals.com/talkswithdrg] profile and say hello  on Twitter @drguthals
